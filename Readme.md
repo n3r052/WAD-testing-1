@@ -1,5 +1,6 @@
 # WAD-testing-1
 gloves are great
 Diamond Crevasse
-weeeeeeeeeeee
+Dont Say Lazy
+Unlasting
 Noice
